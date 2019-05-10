@@ -58,6 +58,6 @@
 
 ![](https://pp.userapi.com/c834400/v834400515/16b4c2/PmOd6EZzjBM.jpg)
 
-[Билет№34](./34-e701bf30-5f3c-4fa4-9038-6b3f73c36bdd.md)
+[Билет№34](resource/34-e701bf30-5f3c-4fa4-9038-6b3f73c36bdd.md)
 
 ![](https://lh6.googleusercontent.com/7hn2GtSX_5dUKLlqfYXJXRqzH3_TFQGmAcVR686HyFfEpqKVn8sVk4Kb5Ah3rCBvd_it5ocvqG5RZXdC2vt4spdXZ1zATzdGTjUNOTN81Hb1tZEtXDQJ3p8xIchJgS75aJJLup4N)
