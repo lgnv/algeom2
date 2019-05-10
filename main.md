@@ -2,7 +2,7 @@
 
 С прошлого года:
 
-![](Untitled-df6f176c-5710-447d-a780-4bb3c9c4a053.png)
+![](resource/Untitled-df6f176c-5710-447d-a780-4bb3c9c4a053.png)
 
 [Билет №1 2017](./1-2017-42c8d7f4-0632-451b-a6f2-9025e74b0ae1.md)
 
